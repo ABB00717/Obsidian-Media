@@ -9,7 +9,7 @@
 
 和「雅俗共賞」有種異曲同工之妙。雅俗共賞妙在於，他讓
 
-就像
+就像安靜的坐在教室角落做自己事情的女孩子。
 
 > [!quote] The Ocean at the End of the Lane
 > Proper bread was white, and pre-sliced, and tasted like almost nothing: that was the point.
