@@ -2,4 +2,4 @@
 
 但還是好吵
 
-白土司ㄇ
+> Proper bread was white, and pre-sliced, and tasted like almost nothing: that was the point.
