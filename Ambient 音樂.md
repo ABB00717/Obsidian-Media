@@ -1,5 +1,7 @@
 我原本很喜歡 Rounds - Four Tet 那種音樂
 
+還有 The Strokes 那種我也很喜歡
+
 但還是好吵
 
 後來喜歡上 Stars of the Lid 這種的。
